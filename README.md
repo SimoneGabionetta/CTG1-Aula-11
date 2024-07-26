@@ -49,6 +49,6 @@ What you get by achieving your goals is not as important as what you become by a
 
 "we can walk our road together, if our goals are all the same" - Neil Peart
 
-"As grandes ideias surgem da observação de pequenos detalhes" Augusto Cury
+ “Mesmo que já tenhas feito uma longa caminhada, há sempre um novo caminho a fazer”. (Santo Agostinho)
 
 
