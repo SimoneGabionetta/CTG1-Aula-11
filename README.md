@@ -49,6 +49,6 @@ What you get by achieving your goals is not as important as what you become by a
 
 "we can walk our road together, if our goals are all the same" - Neil Peart
 
- “Mesmo que já tenhas feito uma longa caminhada, há sempre um novo caminho a fazer”. (Santo Agostinho)
+ “A confiança em si mesmo é o primeiro segredo do sucesso”. (Ralph Waldo Emerson)
 
 
